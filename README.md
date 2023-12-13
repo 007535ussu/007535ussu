@@ -38,7 +38,7 @@ My name is Usman, and I am a passionate and dedicated software developer. I have
 
 
 
-You can connect with me on LinkedIn or send me an email at [your email address]. I am always open to new opportunities and collaborations.
+You can connect with me this github page Only  I am always open to new opportunities and collaborations.
 
 
 
