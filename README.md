@@ -42,5 +42,5 @@ You can connect with me this github page Only  I am always open to new opportuni
 
 
 
-Thank you for visiting my repository! I hope you find my projects useful and inspiring. Happy coding!
+Thank you for visiting my repository! I hope you find my projects useful and inspiring. I hope you always visit to view my github profile and see for daily updates. Happy coding!
 
